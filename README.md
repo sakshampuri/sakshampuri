@@ -1,5 +1,5 @@
-### Hey 
+### Hey!
 
-💻 I code and like to make things
+💻 I like to code and make things with it 🤓
 
 📩 Mail me work querires at me@sakshampuri.com
